@@ -1,0 +1,1 @@
+ini adalah source code buat belajar hehe
